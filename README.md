@@ -1,0 +1,1 @@
+# kogity-s-repository
